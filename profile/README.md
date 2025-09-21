@@ -1,2 +1,2 @@
-## Asisten Lab UPT Komputer | STMIK Widya Pratama Pekalongan
+## Asisten Lab UPT Komputer | Institut Widya Pratama Pekalongan
 Will be update the readme soon..!
